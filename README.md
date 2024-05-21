@@ -1,6 +1,6 @@
 # SSRDOG机场官网地址
 
-最新官网地址：[SSRDOG机场官网](https://dog.ssrdog222.com/#/register?code=p9xMvQe1)
+最新官网地址：[SSRDOG机场官网](https://st1.hosbb.com/#/register?code=p9xMvQe1)
 
 
 ## 简介
@@ -10,7 +10,7 @@ SSRDOG机场，致力于提供高品质的专线加速服务，为用户带来�
 
 ## SSRDOG优惠码
 
-使用优惠码：[999](https://dog.ssrdog222.com/#/register?code=p9xMvQe1)（仅可使用1次），适用于轻量、标准、企业套餐，让新用户以更优惠的价格体验到SSRDOG机场的专业服务。
+使用优惠码：[999](https://st1.hosbb.com/#/register?code=p9xMvQe1)（仅可使用1次），适用于轻量、标准、企业套餐，让新用户以更优惠的价格体验到SSRDOG机场的专业服务。
 
 
 ## SSRDOG机场怎么样
